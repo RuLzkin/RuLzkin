@@ -2,4 +2,4 @@ Amakawa Arata
 
 List:
 * Himmelanium
-* A fish in Brackish
+* A Brackish Water Fish
