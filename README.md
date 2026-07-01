@@ -1,6 +1,5 @@
 Amakawa Arata
 
 List:
-* Himmelanium
+* Himmelanium ( https://amzn.asia/d/04ebZpVt )
 * A Brackish Water Fish
-* (a short story for plague doctors)
